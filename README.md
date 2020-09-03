@@ -1,6 +1,2 @@
 # PaymentBilling
-lhaislfjsdfsd 
-helllfosdfods
-luioluioliuogfgfdsgfdgdf
-dfgdfgdfgf
-fdfsdfsdfsdf
+Dont play pubg for this year
